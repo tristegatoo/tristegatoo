@@ -1,10 +1,9 @@
 - 👋 Hi, I’m @tristegatoo
 - 👀 I’m interested in ballet, cute things
-- 🌱 I’m currently learning nothing lol
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I love beabadoobee, lana del rey & heroes del silencio
 - 📫 How to reach me: dm on ig 
 - 😄 Pronouns: she/her/hers
-- ⚡ Fun fact: i love guitarist
+- ⚡ Fun fact: i love guitarists
 
 <!---
 tristegatoo/tristegatoo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
